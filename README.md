@@ -24,5 +24,5 @@
 ---
 
 ## 📬 Contatos
-- **LinkedIn:** [in/wagner-de-paula](www.linkedin.com/in/wagner-de-paula)
+- **LinkedIn:** [in/wagner-de-paula](https://linkedin.com/in/wagner-de-paula/))
 - **Email:** depaulamarqueswagner@gmail.com
